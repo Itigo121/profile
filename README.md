@@ -7,4 +7,3 @@ I don't think there's anything to make...
 
 <!-- コードを見ると頭がおかしくなりそうよ -->
 
-⇧⇧⇧⇧⇧⇧⇧~かわいい~⇧⇧⇧⇧⇧⇧⇧
